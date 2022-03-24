@@ -6,6 +6,6 @@
 
 💞️ I’m looking to collaborate on projects
 
-📫 How to reach me : Mail - himanichauhan75@gmail.com
+📫 How to reach me : himanichauhan75@gmail.com
 
 
