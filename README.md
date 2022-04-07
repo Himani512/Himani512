@@ -8,4 +8,6 @@
 
 📫 How to reach me : himanichauhan75@gmail.com
 
+**Tableau**: https://public.tableau.com/app/profile/himani3018
+
 
